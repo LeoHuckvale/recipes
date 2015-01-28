@@ -21,9 +21,9 @@ Ingredients
 
 50g gluten-free oats
 
-25g mixed seeds
+50g mixed seeds
 
-25g dried cranberries
+50g dried cranberries
 
 175g plain chocolate
 
