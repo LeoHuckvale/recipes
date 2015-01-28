@@ -47,7 +47,9 @@ Allow to harden for a few moments after removing from the oven
 
 Move florentines to a cooling rack with a palette knife
 
-Melt chocolate and coat the flat side of the florentines gently with the palette knife
+Melt the chocolate (add a small knob of butter if melting in the microwave)
+
+Coat the flat side of the florentines gently with chocolate using the palette knife
 
 Leave to set
 
