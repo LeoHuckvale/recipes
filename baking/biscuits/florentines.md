@@ -25,7 +25,7 @@ Ingredients
 
 25g dried cranberries
 
-200g plain chocolate
+175g plain chocolate
 
 
 Method
